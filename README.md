@@ -36,9 +36,9 @@ Se ha establecido los siguientes indicadores clave para el estudio:
 
 ## Visualizaciones
 
-<a href="https://lh3.googleusercontent.com/drive-viewer/AFGJ81qjkBG4hZxg4OnVUDcdMQ9Xnx6QYUEy7HkfloyVeqHb-TWveHSuaqTkK64_tjox2bszoyeQYrVnMOOzPRwvtenPxN-TvQ=s1600?source=screenshot.guru"> <img src="https://lh3.googleusercontent.com/drive-viewer/AFGJ81qjkBG4hZxg4OnVUDcdMQ9Xnx6QYUEy7HkfloyVeqHb-TWveHSuaqTkK64_tjox2bszoyeQYrVnMOOzPRwvtenPxN-TvQ=s1600" /> </a>
+<p align="center"><a href="https://lh3.googleusercontent.com/drive-viewer/AFGJ81qQkseLRDqL1LxLGJfxqJewWe0_ySEdA3MfDDguPmUkWP7h966JUaFO3rIRbAm-gMCawwYEe-0smsgZDpzL--Z5xxSiLw=s1600?source=screenshot.guru"> <img src="https://lh3.googleusercontent.com/drive-viewer/AFGJ81qQkseLRDqL1LxLGJfxqJewWe0_ySEdA3MfDDguPmUkWP7h966JUaFO3rIRbAm-gMCawwYEe-0smsgZDpzL--Z5xxSiLw=s1600" /></a></p>
 
-<a href="https://lh3.googleusercontent.com/drive-viewer/AFGJ81oJ57Q8-AJVdqSQLpJ7IbfitGmbWjDx7URBPzjv0PT60O_mIpnk6SG-ryLWAfZvrj5f3nrnEeTQtGv5E46COONl61goog=s1600?source=screenshot.guru"> <img src="https://lh3.googleusercontent.com/drive-viewer/AFGJ81oJ57Q8-AJVdqSQLpJ7IbfitGmbWjDx7URBPzjv0PT60O_mIpnk6SG-ryLWAfZvrj5f3nrnEeTQtGv5E46COONl61goog=s1600" /> </a>
+<p align="center"><a href="https://lh3.googleusercontent.com/drive-viewer/AFGJ81ogWM0Cg1hpN_Dy3Hl4DGTB_PniLGTCSCGIotaq1Q7qLCAGUPm8789rhMi1mkyYIMOLTUHs_1ANs7UVBi_gWUfmiOqRwQ=s1600?source=screenshot.guru"> <img src="https://lh3.googleusercontent.com/drive-viewer/AFGJ81ogWM0Cg1hpN_Dy3Hl4DGTB_PniLGTCSCGIotaq1Q7qLCAGUPm8789rhMi1mkyYIMOLTUHs_1ANs7UVBi_gWUfmiOqRwQ=s1600" /></a></p>
 
 
 
